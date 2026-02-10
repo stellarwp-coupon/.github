@@ -1,5 +1,3 @@
-# Active StellarWP Coupon (2026) 47% Discount on Premium Plugins
-
 With our [Active Stellar WP coupons](https://yupbeat.com/recommends/stellerwp-deals/), you will get **47% discoun**t on the premium WP Plugins & themes, saving you up to $489 annually.
 
 ## 47% OFF StellarWP Coupon For Premium WordPress Plugin
